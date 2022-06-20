@@ -4,6 +4,9 @@ This site is also a bit of practice for Ricky who is learning and practicing cod
 Each week Sam chooses a place that seems appealing, and Ricky does a bit of research about the place according to the parameters required.
 
 # Request No. 1 - "Prairie"
+
+![]
+
 This request from Sami likely is driven at least partly by her mother's deep affection for Little House On the Prairie. If we do end up in the prairie, I hope we'll find much more luck than the Ingalls family.
 
 Generally, the prairie in the United States includes part or all of: Ohio, Illinois, Minnesota, Iowa, Missouri, North Dakota, South Dakota, Nebraska, Kansas, Oklahoma, Texas, Montana, Wyoming, Colorado, and New Mexico. The eastern-most prairie is made up mostly 
