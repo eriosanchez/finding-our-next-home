@@ -26,7 +26,7 @@ Generally, the prairie in the United States includes part or all of: Ohio, Illin
 One of Ricky's biggest concerns when looking at any place to live or settle is legislation. With the impending overturning or Roe v. Wade, and the relative inability to effect change in a place where Ricky and Sam do not currently live, it seems important to look towards the likelihood of legislative change and/or the ability to realistically fight for protections. While Sami and Ricky are queer and don't anticipate needing abortions for their own survival, restrictive abortion access can be a harbinger for restrictions of all kinds on the bodies and lives of minoritized and oppressed peoples. 
 
 Beccause of the above, [the New York Times' interactive map](https://www.nytimes.com/interactive/2022/us/abortion-laws-roe-v-wade.html) showing the legal status of abortion without Roe will be instrumental.
-![Screen grab of NYT interactive abortion law map from June 20, 2022]
+![Screen grab of NYT interactive abortion law map from June 20, 2022](media/nyt-abortion-map-062022.png)
 
 To give us a smaller starting point then, the choices for what Ricky might consider "workable or ideal" is Illinois, Minnesota, Iowa, Nebraska, Kansas, Montana, Colorado, and New Mexico. Still a sizeable list.
 
