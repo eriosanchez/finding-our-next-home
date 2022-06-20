@@ -5,7 +5,7 @@ Each week Sam chooses a place that seems appealing, and Ricky does a bit of rese
 
 # Request No. 1 - "Prairie"
 
-![]
+![prairie stockphoto](media/prairies.jpg)
 
 This request from Sami likely is driven at least partly by her mother's deep affection for Little House On the Prairie. If we do end up in the prairie, I hope we'll find much more luck than the Ingalls family.
 
