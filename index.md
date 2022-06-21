@@ -10,6 +10,8 @@ Each week Sam chooses a place that seems appealing, and Ricky does a bit of rese
 
 This request from Sami likely is driven at least partly by her mother's deep affection for Little House On the Prairie. If we do end up in the prairie, I hope we'll find much more luck than the Ingalls family.
 
+> Sami thinks it's important to note that while the Ingalls family had some hard times, they did have some good luck. Sami did immediately bring up that Mary went blind... ... BUT she does think that an argument can be made that there were some important anti-ableist narratives as Mary was able to find happiness and make her own life despite any limitations that might have been imposed upon her by others.
+
 Generally, the prairie in the United States includes part or all of: Ohio, Illinois, Minnesota, Iowa, Missouri, North Dakota, South Dakota, Nebraska, Kansas, Oklahoma, Texas, Montana, Wyoming, Colorado, and New Mexico. The eastern-most prairie is made up mostly 
 
 ## Initial Impressions
@@ -39,7 +41,19 @@ On the list of states with strong legal protections are Minnesota, Illinois, Col
 On the list of states which would require good grassroots organizing are Iowa, Nebraska, Kansas, and Montana?
 
 ##### Questions for Sami at this point:
-- Are there any states that jump right out immediately?
-- How do you feel about potentially dealing with tornadoes?
-- Are there family medicine programs in any of these states that seem particularly interesting?
 
+- Are there any states that jump right out immediately?
+*Answer*: Minnesota, Colorado, New Mexico
+
+- How do you feel about potentially dealing with tornadoes?
+*Answer*: fine with it as long as we have a place meant to deal with tornadoes - probably not too keen on a highrise. Sami has an instinctive ability to live with natural disaster having grown up in New Orleans
+
+- Are there family medicine programs in any of these states that seem particularly interesting?
+*Answer*: There are a couple of really cool queer women working with the Indian Health Service. Sami looked up their info and one of them even started the Gallup Indian Health Service Trans Clinic! 
+
+
+##### Questions/Comments That Sami Has
+
+- Are there Spanish-speaking folk throughout New Mexico? Because Sami doesn't speak Spanish, she is pretty concerned about making sure that she is able to communicate well with her patient popualtion.
+
+The Gallup Indian Health Center is a 99-bed small hospital on the border of the Navajo Reservation. So what parts of NM count as prairie? Both Sami and Ricky would really miss trees and Sami's only recollection of NM was while confronting its flat orangeness on a roadtrip to the Grand Canyon during her early college years.
