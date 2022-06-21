@@ -12,7 +12,7 @@ This request from Sami likely is driven at least partly by her mother's deep aff
 
 > Sami thinks it's important to note that while the Ingalls family had some hard times, they did have some good luck. Sami did immediately bring up that Mary went blind... ... BUT she does think that an argument can be made that there were some important anti-ableist narratives as Mary was able to find happiness and make her own life despite any limitations that might have been imposed upon her by others.
 
->[image of Mary Ingalls with information about her illness and local newspaper clippings from the time circa May 1879](media/marys%20blindness.jpg)
+![image of Mary Ingalls with information about her illness and local newspaper clippings from the time circa May 1879](media/marys%20blindness.jpg)
 
 Generally, the prairie in the United States includes part or all of: Ohio, Illinois, Minnesota, Iowa, Missouri, North Dakota, South Dakota, Nebraska, Kansas, Oklahoma, Texas, Montana, Wyoming, Colorado, and New Mexico. The eastern-most prairie is made up mostly 
 
