@@ -57,3 +57,5 @@ On the list of states which would require good grassroots organizing are Iowa, N
 - Are there Spanish-speaking folk throughout New Mexico? Because Sami doesn't speak Spanish, she is pretty concerned about making sure that she is able to communicate well with her patient popualtion.
 
 The Gallup Indian Health Center is a 99-bed small hospital on the border of the Navajo Reservation. So what parts of NM count as prairie? Both Sami and Ricky would really miss trees and Sami's only recollection of NM was while confronting its flat orangeness on a roadtrip to the Grand Canyon during her early college years.
+
+The bad news is that the Navajo Land Trust is about as far as it could be from the New Mexico prairielands while still being in the same state. But both Sami and Ricky feel that this was still super useful in considering what it might be like to work in New Mexico and brought Sami some thoughts to mull over about working for the Indian Health Service. 
