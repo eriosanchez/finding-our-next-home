@@ -36,6 +36,10 @@ One of Ricky's biggest concerns when looking at any place to live or settle is l
 Beccause of the above, [the New York Times' interactive map](https://www.nytimes.com/interactive/2022/us/abortion-laws-roe-v-wade.html) showing the legal status of abortion without Roe will be instrumental.
 ![Screen grab of NYT interactive abortion law map from June 20, 2022](media/nyt-abortion-map-062022.png)
 
+> On 6/22/22 SCOTUS announced they'll be releasing the decision about Dobbs v. Jackson Women's Health Organization on Friday 6/24/22. Ricky and Sami are both praying for an outcome that will mean they don't have to be so restrictive of their search but preparing for the expected worst. The initial leak of the draft decision is indeed what triggered the journey cataloged on this page. 
+
+## Next steps
+
 To give us a smaller starting point then, the choices for what Ricky might consider "workable or ideal" is Illinois, Minnesota, Iowa, Nebraska, Kansas, Montana, Colorado, and New Mexico. Still a sizeable list.
 
 On the list of states with strong legal protections are Minnesota, Illinois, Colorado, and New Mexico.
