@@ -36,7 +36,11 @@ One of Ricky's biggest concerns when looking at any place to live or settle is l
 Beccause of the above, [the New York Times' interactive map](https://www.nytimes.com/interactive/2022/us/abortion-laws-roe-v-wade.html) showing the legal status of abortion without Roe will be instrumental.
 ![Screen grab of NYT interactive abortion law map from June 20, 2022](media/nyt-abortion-map-062022.png)
 
-> On 6/22/22 SCOTUS announced they'll be releasing the decision about Dobbs v. Jackson Women's Health Organization on Friday 6/24/22. Ricky and Sami are both praying for an outcome that will mean they don't have to be so restrictive of their search but preparing for the expected worst. The initial leak of the draft decision is indeed what triggered the journey cataloged on this page. 
+On 6/22/22 SCOTUS announced they'll be releasing the decision about Dobbs v. Jackson Women's Health Organization on Friday 6/24/22. Ricky and Sami are both praying for an outcome that will mean they don't have to be so restrictive of their search but preparing for the expected worst. The initial leak of the draft decision is indeed what triggered the journey cataloged on this page.
+ 
+On 6/24/22 SCOTUS overturned not only Roe v. Wade, but also Casey v. Planned Parenthood with at least one justice encouraging that cases should be brought forward so that Griswold, Lawrence, and Obergefell which protect access to contraceptives, freedom from criminal punishment for participating in gay sex, and the right to gay marriage might also be overturned.
+
+At the time of the decision, approximately 13 states had some type of trigger law in effect to make abortion illegal within 30 days including Kentucky, Tennessee, Mississippi, Missouri, Arkansas, Louisiana, Oklahoma, Texas, North Dakota, South Dakota, Wyoming, Idaho, Utah.
 
 ## Next steps
 
